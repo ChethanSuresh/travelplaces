@@ -1,2 +1,4 @@
-# travelplaces
-List of all travel places
+# List Of All Travel Places
+
+- One day outing
+- Breakfast/Lunch rides
