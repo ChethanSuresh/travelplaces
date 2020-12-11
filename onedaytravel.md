@@ -75,3 +75,29 @@
   - 55KM from Bangalore
   - Hike, viewpoint, temple, 
   - https://goo.gl/maps/jk3o3CWHcJdFjsGQ8
+
+- **Skandagiri Hills, Karnataka**
+  - 74KM from Bangalore
+  - Hike, viewpoint, ride
+  - https://goo.gl/maps/n6KNqhSthGygj3yE6
+ 
+- **Antara Gange, Vibhuthipura**
+  - 83KM from Bangalore
+  - Temple, hike, viewpoint
+  - https://goo.gl/maps/n6KNqhSthGygj3yE6
+ 
+- **Madhugiri Betta**
+  - 107KM from Bangalore
+  - Hike, viewpoint
+  - https://goo.gl/maps/aLsN7D2uShLGpaqv5
+  
+- **Channarayana Durga Betta**
+  - 102KM from Bangalore
+  - Hike, viewpoint
+  - https://goo.gl/maps/ZumHs5HsAF2LLe476
+
+- **Kunti Betta**
+  - 110KM from Bangalore
+  - Hike, viewpoint
+  - https://goo.gl/maps/DTpyoJ1FsPq7iRLx6 
+
