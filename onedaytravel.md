@@ -101,3 +101,7 @@
   - Hike, viewpoint
   - https://goo.gl/maps/DTpyoJ1FsPq7iRLx6 
 
+- **Avani Betta**
+  - 111KM from Bangalore
+  - Hike, temple, viewpoint
+  - https://maps.app.goo.gl/JEph3fSCUZ1GrdKz7
