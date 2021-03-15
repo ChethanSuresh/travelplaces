@@ -105,3 +105,8 @@
   - 111KM from Bangalore
   - Hike, temple, viewpoint
   - https://maps.app.goo.gl/JEph3fSCUZ1GrdKz7
+
+- **Kailasagiri Hill**
+  - 100KM from Bangalore
+  - Hike, temple, cave
+  - https://goo.gl/maps/xyCVZf7WSEVmYEWr6
