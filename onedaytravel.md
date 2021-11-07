@@ -23,6 +23,7 @@
 
 - **Sri Nambinarayana swamy Temple, Thondanoor**
   - 119KM from Bangalore via Mysore road
+  - Also visit Thonnur Lake
   - Ancient temple, nearby water place
   - https://goo.gl/maps/T6GZF2wr1XrbPPV38 
 
@@ -110,3 +111,15 @@
   - 100KM from Bangalore
   - Hike, temple, cave
   - https://goo.gl/maps/xyCVZf7WSEVmYEWr6
+ 
+- **Bilikal Rangaswamy Betta**
+  - 77KM from Bangalore
+  - Hike, temple
+  - https://goo.gl/maps/ajVWELBwh3YCh2kQ6
+
+- **Thottikallu Falls**
+  - 34KM from Bangalore
+  - Falls, water, hike 
+  - https://goo.gl/maps/x9pvkXSGdHnZKrvx7
+
+- **
